@@ -6,6 +6,6 @@ Amogh Havagani
 
 Jeet Jagad
 
-Matthew Du
+Matthew Dua Lipa
 
 Lucas Mallen
